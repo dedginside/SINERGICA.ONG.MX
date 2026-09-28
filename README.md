@@ -1,0 +1,1 @@
+# SINERGICA.ONG.MX
